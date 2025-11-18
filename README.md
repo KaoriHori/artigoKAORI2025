@@ -1,0 +1,1 @@
+# artigoKAORI2025
